@@ -7,6 +7,7 @@
 ### Chic - A Warm Summer Night
 
 * [Bass tabs](chic-a-warm-summer-night.txt)
+* [Cover](https://youtu.be/aX4Vb7eCr5E)
 
 ### Amber Mark - Lose My Cool (Franc Moody Remix)
 
