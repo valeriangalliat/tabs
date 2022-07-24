@@ -91,3 +91,8 @@
 ### Sparkee x PINEO & LOEB feat deadmau5 - Feel It
 
 * [Bass tabs](sparkee-pineo-loeb-deadmau5-feel-it.txt)
+
+### Warren G - Keep on Hustlin' (feat. Young Jeezy, Bun B & Nate Dogg)
+
+* [Bass tabs](warren-g-keep-on-hustlin.txt)
+* [Cover](https://youtu.be/5U0Mtkbefec)
