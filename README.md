@@ -96,3 +96,17 @@
 
 * [Bass tabs](warren-g-keep-on-hustlin.txt)
 * [Cover](https://youtu.be/5U0Mtkbefec)
+
+### Baboon Prophecy & Taiwan MC - Times so Hard
+
+* [Bass tabs](times-so-hard.txt)
+* [Cover](https://youtu.be/cn_wN5kLYn0)
+
+### Ismatricule - Groove de l'Empereur
+
+* [Bass tabs](ismatricule-groove-de-l-empereur.txt)
+
+### Sabrina Carpenter - Espresso
+
+* [Bass tabs](sabrina-carpenter-espresso.txt)
+* [Cover](https://youtu.be/0qa-qLb0qdI)
